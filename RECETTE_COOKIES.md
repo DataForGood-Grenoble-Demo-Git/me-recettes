@@ -1,7 +1,8 @@
 # Cookies
 ## Ingrédients (20 cookies)
 - 1 œuf
-- 110 g de sucre
+- 45 g de sucre
+- 65 g de Cassonade
 - 1 pincée de sel
 - 100 g de beurre
 - 225 g de farine
