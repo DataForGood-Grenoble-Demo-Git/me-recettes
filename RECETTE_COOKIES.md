@@ -2,16 +2,8 @@
 ## Ingrédients (20 cookies)
 - 1 œuf
 - 45 g de sucre
-
-
 - 65 g de Cassonade
-
-
-
-
-
-
-
+- 1 c à s de miel
 - 1 pincée de sel
 - 100 g de beurre
 - 225 g de farine
@@ -20,8 +12,8 @@
 
 ## Recette
 ### Assemblage
-Dans un cul de poule, blanchir le beurre ramolli avec le sucre et la cassonade (vachement meilieur).
-Ajouter l'œuf, le sel. Mélanger.
+Dans un cul de poule, blanchir le beurre ramolli avec le sucre et la cassonade.
+Ajouter l'œuf, le sel et le miel. Mélanger.
 Ajouter le chocolat taillé en petites pépites et la levure chimique.
 Ajouter la farine et bien mélanger à la spatule jusqu'à l'obtention d'une pâte homogène.
 Disposer cette pâte sur une feuille de papier sulfurisé. Lui donner la forme d'un boudin.
