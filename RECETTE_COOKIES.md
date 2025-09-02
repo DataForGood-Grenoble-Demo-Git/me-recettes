@@ -11,7 +11,7 @@
 
 ## Recette
 ### Assemblage
-Dans un cul de poule, blanchir le beurre ramolli avec le sucre et la cassonade.
+Dans un cul de poule, blanchir le beurre ramolli avec le sucre et la cassonade (vachement meilieur).
 Ajouter l'œuf, le sel. Mélanger.
 Ajouter le chocolat taillé en petites pépites et la levure chimique.
 Ajouter la farine et bien mélanger à la spatule jusqu'à l'obtention d'une pâte homogène.
