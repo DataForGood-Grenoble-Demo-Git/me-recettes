@@ -10,6 +10,8 @@
 - 1 cuillère à café de levure chimique
 - 150 g de chocolat noir 
 
+modificatio
+
 ## Recette
 ### Assemblage
 Dans un cul de poule, blanchir le beurre ramolli avec le sucre et la cassonade.
@@ -29,4 +31,5 @@ Disposer ces rondelles sur une plaque à pâtisserie graissée. Les séparer de 
 Enfourner à four chaud (180/200°C).
 Laisser cuire 10min max (il faut que le milieu du cookie soit encore clair)
 Au terme de la cuisson, les laisser poser deux minutes avant de les décoller de la plaque à l'aide d'une spatule plate. Laisser refroidir.
+
 
